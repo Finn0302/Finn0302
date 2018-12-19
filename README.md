@@ -1,3 +1,3 @@
-# Finn0302.github.io
+# Finn en Sjoerd
 Welkom op onze website
 Wij leggen hier uit over Call of Duty
